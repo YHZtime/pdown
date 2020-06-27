@@ -30,7 +30,8 @@
 <br/>
 ### 5.给大家安利：<br/>
 1 速盘，按流量收费的，百度网盘下载软件  http://www.supanx.com/<br/>
-2 亿寻，完全免费的百度网盘下载软件  https://yixun.writeas.com/yi-xun  （官网需要挂代理，果壳  http://ct.ghpym.com/dir/7369060-37139331-aed4a6）<br/>
+2 亿寻，完全免费的百度网盘下载软件  https://yixun.writeas.com/yi-xun  <br/>
+（官网需要挂代理，果壳  http://ct.ghpym.com/dir/7369060-37139331-aed4a6   ）<br/>
 3 新极品，6.5元/月合租百度网盘超级会员账号 http://fulivip.com/lin/vip<br/>
 4 vip分享网 https://bbs.vipfenxiang.com/thread-52542-1-1.html<br/>
 5 淘宝，拼多多，搜索百度网盘，巨多百度网盘超级会员账号，都在6元/月<br/><br/>
